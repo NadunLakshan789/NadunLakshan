@@ -3,7 +3,7 @@
 
 - I’m currently learning **Networking**
 
-- All of my projects are available at [https://github.com/Bhanuka98](https://github.com/NadunLakshan789)
+- All of my projects are available at [https://github.com/NadunLakshan789]
 
 - How to reach me **nadunlakshan789@gmail.com**
 
